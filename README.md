@@ -1,0 +1,2 @@
+# ikangshidiq
+Latihan
